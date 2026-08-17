@@ -1,7 +1,7 @@
 # ⊹ ͙    ᑭIEᖇᖇO! TᖇᗩᐯEᒪEᖇ! ᒪOOK ᕼEᖇE!  ͙  ⊹    
  ✧  .  𓋰   .    The Puppets house ୨ ୧
 ۰  ͙  ⊹    ʚ  Any — All   ♡　．． !
-_ _    Please note we are Suspecting System,   ‧   .    ⌗ . 
+_ _    Please note we are Suspecting System ˚ ₊    ‧   .    ⌗ . 
 
 _ _   ˚ ₊  ‧ ꒰  ა   Currently we have been fixated on Journey to the west, though we return to fandoms ever so often such as.. genshin! and many others.
 ˚ ₊ Fandoms we are currently in are.. LEGO: Mokie Kid, Genshin Impact, PHIGHTING!, Frieren, Limbus Company, Agents of The Four Seasons, Animal Hospital, Cookie Run (as a whole), Witch hat Atelier, Neverness To Everness, andd the list goes on..   __ 
