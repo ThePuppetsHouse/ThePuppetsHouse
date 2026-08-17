@@ -15,5 +15,5 @@ _ _   ˚ ₊  ‧ ꒰  ა   Currently we have been fixated on Journey to the we
 ⬩➤ We are usually in a bit of a mild pain (though its less since we are quite used to it) though it sometimes becomes worse for a moment, it will go away with time do not fret
 
 _ _  __  Other names you may call us are... Korii or Jester! / .  ୨ৎ ˙  ,
-![Paimon]()
+![Paimon](paimonframe.png)
 _ _   ˚ ₊  ‧ ꒰  ა   You've realized it, haven't you ? ? ? YES ! The real- real- real me isn't made of love and dreams.. that's right ! I'm made of meat-  made of meat-  made of meat- ...  made of meat ! __ 
