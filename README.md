@@ -1,16 +1,19 @@
-## Hi there 👋
+# ⊹ ͙    ᑭIEᖇᖇO! TᖇᗩᐯEᒪEᖇ! ᒪOOK ᕼEᖇE!  ͙  ⊹    
+ ✧  .  𓋰   .    The Puppets house ୨ ୧
+۰  ͙  ⊹    ʚ  Any — All   ♡　．． !
+_ _    Please note we are Suspecting System,   ‧   .    ⌗ . 
 
-<!--
-**ThePuppetsHouse/ThePuppetsHouse** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+_ _   ˚ ₊  ‧ ꒰  ა   Currently we have been fixated on Journey to the west, though we return to fandoms ever so often such as.. genshin! and many others.
+˚ ₊ Fandoms we are currently in are.. LEGO: Mokie Kid, Genshin Impact, PHIGHTING!, Frieren, Limbus Company, Agents of The Four Seasons, Animal Hospital, Cookie Run (as a whole), Witch hat Atelier, Neverness To Everness, andd the list goes on..   __ 
 
-Here are some ideas to get you started:
+⬩➤ Please be mindful that we can sometimes take things literally, we are sometimes very bad at discerning what is a joke and what is not, be patient with us,
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+⬩➤ We not do have the best grammar nor reading skills ( we are dyslexic and have slight dyspraxia.)
+
+⬩➤ We have problems with our heart (Physically smaller then it should be), we are more likely to faint and sometimes we need breaks (or a lot to drink when playing some type of games.) to make sure we do NOT faint.
+
+⬩➤ We are usually in a bit of a mild pain (though its less since we are quite used to it) though it sometimes becomes worse for a moment, it will go away with time do not fret
+
+_ _  __  Other names you may call us are... Korii or Jester! / .  ୨ৎ ˙  ,
+![Paimon]()
+_ _   ˚ ₊  ‧ ꒰  ა   You've realized it, haven't you ? ? ? YES ! The real- real- real me isn't made of love and dreams.. that's right ! I'm made of meat-  made of meat-  made of meat- ...  made of meat ! __ 
