@@ -4,7 +4,7 @@
 _ _    Please note we are Suspecting System ˚ ₊    ‧   .    ⌗ . 
 
 _ _   ˚ ₊  ‧ ꒰  ა   Currently we have been fixated on Journey to the west, though we return to fandoms ever so often such as.. genshin! and many others.
-˚ ₊ Fandoms we are currently in are.. LEGO: Mokie Kid, Genshin Impact, PHIGHTING!, Frieren, Limbus Company, Agents of The Four Seasons, Animal Hospital, Cookie Run (as a whole), Witch hat Atelier, Neverness To Everness, andd the list goes on..   __ 
+˚ ₊ Fandoms we are currently in are.. LEGO: Mokie Kid, Genshin Impact, PHIGHTING!, Frieren, Limbus Company, Agents of The Four Seasons, Animal Hospital, Cookie Run (as a whole), Witch hat Atelier, Neverness To Everness, Disney Twisted Wonderland andd the list goes on..   __ 
 
 ⬩➤ Please be mindful that we can sometimes take things literally, we are sometimes very bad at discerning what is a joke and what is not, be patient with us,
 
