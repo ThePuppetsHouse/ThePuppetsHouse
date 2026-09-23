@@ -1,6 +1,9 @@
 # ⊹ ͙    Fσɾ I αɱ Sυƈԋ α ƙιɳԃ ԋҽαԃɱαɠҽ !  ͙  ⊹ 
  ✧  .  𓋰   .    The Puppets house ୨ ୧
-۰  ͙  ⊹    ʚ  Any — All   ♡　．． !  <img align="right" width="120" src="https://github.com/ThePuppetsHouse/ThePuppetsHouse/blob/987defba169906d0916bbcc32058fb8960637eef/Zrzut%20ekranu%202026-09-23%20145548.png" alt="It's 10PM. Do You know WHERE your children are?" title="Temp image! <3 #HEALING">
+۰  ͙  ⊹    ʚ  Any — All   ♡　．． !  <img align="right" width="560" src="https://github.com/ThePuppetsHouse/ThePuppetsHouse/blob/3f5448c73a274920ff60803a204c244c55752a71/Raverne.gif" alt="It's 10PM. Do You know WHERE your children are?" title="Raverne/Dragoneye Duke/Malleus's father">
+
+˚ ₊ Raverne gif! ₊ ˚ 'Its 10PM. Do You Know WHERE your children are?' ------------------------------------------------------------⬩➤ 
+
 _ _    Please note we are Suspecting System ˚ ₊    ‧   .    ⌗ . 
 
 _ _   ˚ ₊  ‧ ꒰  ა   Currently we have been fixated on Journey to the west, though we return to fandoms ever so often such as.. Genshin! and many others.
@@ -14,6 +17,6 @@ _ _   ˚ ₊  ‧ ꒰  ა   Currently we have been fixated on Journey to the we
 
 ⬩➤ We are usually in a bit of a mild pain (though its less since we are quite used to it) though it sometimes becomes worse for a moment, it will go away with time do not fret
 
-_ _  __  Other names you may call us are... Korii or Jester! / .  ୨ৎ ˙  ,
+_ _  __  Other names you may call us are... Korii or Jester! / .  ୨ৎ ˙  , 
 ![DireCrowley1](DireCrowleyFrame.png)
 _ _   ˚ ₊  ‧ ꒰  ა   You've realized it, haven't you ? ? ? YES ! The real- real- real me isn't made of love and dreams.. that's right ! I'm made of meat-  made of meat-  made of meat- ...  made of meat ! __ 
