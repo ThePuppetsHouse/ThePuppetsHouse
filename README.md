@@ -1,8 +1,7 @@
 # ⊹ ͙    Fσɾ I αɱ Sυƈԋ α ƙιɳԃ ԋҽαԃɱαɠҽ !  ͙  ⊹ 
  ✧  .  𓋰   .    The Puppets house ୨ ୧
-۰  ͙  ⊹    ʚ  Any — All   ♡　．． !  <img align="right" width="120" src="https://github.com/ThePuppetsHouse/ThePuppetsHouse/blob/987defba169906d0916bbcc32058fb8960637eef/Zrzut%20ekranu%202026-09-23%20145548.png">
+۰  ͙  ⊹    ʚ  Any — All   ♡　．． !  <img align="right" width="120" src="https://github.com/ThePuppetsHouse/ThePuppetsHouse/blob/987defba169906d0916bbcc32058fb8960637eef/Zrzut%20ekranu%202026-09-23%20145548.png" alt="It's 10PM. Do You know WHERE your children are?" title="Temp image! <3 #HEALING">
 _ _    Please note we are Suspecting System ˚ ₊    ‧   .    ⌗ . 
-TEMP IMAGE <3 #HEALING
 
 _ _   ˚ ₊  ‧ ꒰  ა   Currently we have been fixated on Journey to the west, though we return to fandoms ever so often such as.. Genshin! and many others.
 ˚ ₊ Fandoms we are currently in are.. LEGO: Mokie Kid, Genshin Impact, PHIGHTING!, Frieren, Limbus Company, Agents of The Four Seasons, Animal Hospital, Cookie Run (as a whole), Witch hat Atelier, Neverness To Everness, Disney Twisted Wonderland andd the list goes on..   __ 
