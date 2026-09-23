@@ -1,6 +1,6 @@
 # ⊹ ͙    Fσɾ I αɱ Sυƈԋ α ƙιɳԃ ԋҽαԃɱαɠҽ !  ͙  ⊹ 
  ✧  .  𓋰   .    The Puppets house ୨ ୧
-۰  ͙  ⊹    ʚ  Any — All   ♡　．． !  <img align="right" width="560" src="https://github.com/ThePuppetsHouse/ThePuppetsHouse/blob/3f5448c73a274920ff60803a204c244c55752a71/Raverne.gif" alt="It's 10PM. Do You know WHERE your children are?" title="Raverne/Dragoneye Duke/Malleus's father">
+۰  ͙  ⊹    ʚ  Any — All   ♡　．． !  <img align="right" width="555" src="https://github.com/ThePuppetsHouse/ThePuppetsHouse/blob/3f5448c73a274920ff60803a204c244c55752a71/Raverne.gif" alt="It's 10PM. Do You know WHERE your children are?" title="Raverne/Dragoneye Duke/Malleus's father">
 
 ˚ ₊ Raverne gif! ₊ ˚ 'Its 10PM. Do You Know WHERE your children are?' -------⬩➤ 
 
