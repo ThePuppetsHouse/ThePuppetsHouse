@@ -1,4 +1,4 @@
-# ⊹ ͙    Fσɾ I αɱ Sυƈԋ α ƙιɳԃ ԋҽαԃɱαɠҽ !  ͙  ⊹ 
+# ⊹ ͙   ꜱᴏᴍᴇᴡʜᴇʀᴇ ᴅᴇᴇᴘ ᴅᴏᴡɴ.., ɪ ʜᴀᴅ ᴀ ꜰᴇᴇʟɪɴɢ ʏᴏᴜ'ᴅ ʙᴇ ᴛʜᴇ ꜰɪʀꜱᴛ ᴛᴏ ʀᴇᴀᴄʜ ᴍᴇ. ⊹ ɢᴏᴏᴅ ᴇᴠᴇɴɪɴɢ, ꜱᴇʙᴇᴋ. ꜱᴜᴄʜ ᴀ ꜰɪɴᴇ ᴇɴᴄᴏᴜɴᴛᴇʀ ɪꜱ ᴅᴇꜱᴇʀᴠɪɴɢ ᴏꜰ ᴀ ᴄᴏᴜʀᴛᴇꜱʏ ᴋɪꜱꜱ ! ⊹ ɪ'ᴠᴇ ꜰɪɴᴀʟʟʏ ꜰᴏᴜɴᴅ ʏᴏᴜ, ꜱᴋᴜʟʟʏ !  ͙  ⊹ 
  ✧  .  𓋰   .    The Puppets house ୨ ୧
 ۰  ͙  ⊹    ʚ  Any — All   ♡　．． !  <img align="right" width="555" src="https://github.com/ThePuppetsHouse/ThePuppetsHouse/blob/3f5448c73a274920ff60803a204c244c55752a71/Raverne.gif" alt="It's 10PM. Do You know WHERE your children are?" title="Raverne/Dragoneye Duke/Malleus's father">
 
