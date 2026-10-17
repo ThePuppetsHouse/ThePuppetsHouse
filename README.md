@@ -19,4 +19,4 @@ _ _   ˚ ₊  ‧ ꒰  ა   Currently we have been fixated on Disney Twisted Wo
 
 _ _  __  Other names you may call us are... Korii or Jester! / .  ୨ৎ ˙  , 
 ![SebekxSkully](SebekSkullyBanner.png)
-_ _   ˚ ₊  ‧ ꒰  ა   You've realized it, haven't you ? ? ? YES ! The real- real- real me isn't made of love and dreams.. that's right ! I'm made of meat-  made of meat-  made of meat- ...  made of meat ! __ 
+_ _   ˚ ₊  ‧ ꒰  ა   In sleep he sang to me . . , in dreams he came, that voice that calls to me . . and speaks my name and do I dream again ? For now I find the Phantom of the Opera is there . . . - inside my mind ! __ 
