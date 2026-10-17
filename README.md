@@ -2,7 +2,7 @@
  ✧  .  𓋰   .    The Puppets house ୨ ୧
 ۰  ͙  ⊹    ʚ  Any — All   ♡　．． !  <img align="right" width="555" src="https://github.com/ThePuppetsHouse/ThePuppetsHouse/blob/355e660e7d191207b56eb0276626bf99608157b6/Sebskully.gif" alt="Deserving of a courtesy kiss!" title="Sebek x Skully">
 
-˚ ₊ Sebskully gif ! ₊ ˚ ' Our love forever shining ♡ ' -------⬩➤ 
+˚ ₊ Sebskully gif ! ₊ ˚ ' Our love forever shining ♡ ' --⬩➤ 
 
 _ _    Please note we are Suspecting System ˚ ₊ ‧ . 
 
